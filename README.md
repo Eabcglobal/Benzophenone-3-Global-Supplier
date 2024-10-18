@@ -24,4 +24,4 @@ Household Products: Incorporated in various formulations to prevent degradation 
  Conclusion
 EABC Global is dedicated to being your premier supplier of Benzophenone-3, providing high-quality products backed by excellent service and support. Whether you are in the cosmetics industry, plastics manufacturing, or any other sector that utilizes UV protection, we are here to meet your needs. Partner with EABC Global today and experience the difference in quality, reliability, and customer care. 
 For inquiries or to learn more about our Benzophenone-3 offerings, please visit our website or contact our sales team. Let EABC Global be your trusted ally in achieving success in your business.
-Visit Our Website to know more about Products: https://www.eabcglobal.com/methylparaben-mp | Email Us Your Requirements: sales@eabcglobal.com, OR Call Now for Order +91-8960304529.
+Visit Our Website to know more about Products: https://www.eabcglobal.com/benzophenone-3-b3 | Email Us Your Requirements: sales@eabcglobal.com, OR Call Now for Order +91-8960304529.
